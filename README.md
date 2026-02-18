@@ -1,26 +1,133 @@
-𝖠𝖿𝗍𝖾𝗋 𝗐𝖾𝖾𝗄𝗌 𝗈𝖿 𝗐𝗈𝗋𝗄, 𝖨’𝗆 𝖾𝗑𝖼𝗂𝗍𝖾𝖽 𝗍𝗈 𝗌𝗁𝖺𝗋𝖾 𝗈𝗇𝖾 𝗈𝖿 𝗍𝗁𝖾 𝗆𝗈𝗌𝗍 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍𝗂𝗏𝖾 𝖽𝖺𝗌𝗁𝖻𝗈𝖺𝗋𝖽𝗌 𝖨’𝗏𝖾 𝖻𝗎𝗂𝗅𝗍 — 𝗮 𝗴𝗹𝗼𝗯𝗮𝗹 𝗦𝗸𝗶 𝗥𝗲𝘀𝗼𝗿𝘁 𝗔𝗻𝗮𝗹𝘆𝘁𝗶𝗰𝘀 𝗗𝗮𝘀𝗵𝗯𝗼𝗮𝗿𝗱 𝗱𝗲𝗽𝗹𝗼𝘆𝗲𝗱 using 𝗥𝗲𝗻𝗱𝗲𝗿 + 𝗚𝗶𝘁𝗛𝘂𝗯.
-𝖳𝗁𝗂𝗌 𝗉𝗋𝗈𝗃𝖾𝖼𝗍 𝗁𝖾𝗅𝗉𝖾𝖽 𝗆𝖾 𝗌𝗁𝖺𝗋𝗉𝖾𝗇 𝖺𝖽𝗏𝖺𝗇𝖼𝖾𝖽 𝖽𝖺𝗍𝖺 𝖺𝗇𝖺𝗅𝗒𝗍𝗂𝖼𝗌, 𝗏𝗂𝗌𝗎𝖺𝗅𝗂𝗓𝖺𝗍𝗂𝗈𝗇, 𝖺𝗇𝖽 𝖽𝖾𝗉𝗅𝗈𝗒𝗆𝖾𝗇𝗍 𝗌𝗄𝗂𝗅𝗅𝗌 — 𝖺𝗇𝖽 𝖨’𝗆 𝗉𝗋𝗈𝗎𝖽 𝗈𝖿 𝗁𝗈𝗐 𝗂𝗍 𝗍𝗎𝗋𝗇𝖾𝖽 𝗈𝗎𝗍. 🚀
-🎯 𝖶𝗁𝖺𝗍’𝗌 𝖨𝗇𝗌𝗂𝖽𝖾 𝗍𝗁𝖾 𝖣𝖺𝗌𝗁𝖻𝗈𝖺𝗋𝖽? 
-🌍 𝖦𝗅𝗈𝖻𝖺𝗅 𝖱𝖾𝗌𝗈𝗋𝗍 𝖬𝖺𝗉
- 𝖠 𝖽𝗒𝗇𝖺𝗆𝗂𝖼 𝗀𝖾𝗈𝗌𝗉𝖺𝗍𝗂𝖺𝗅 𝗁𝖾𝖺𝗍𝗆𝖺𝗉 𝗌𝗁𝗈𝗐𝗂𝗇𝗀: 𝖳𝗂𝖼𝗄𝖾𝗍 𝗉𝗋𝗂𝖼𝖾𝗌 𝖳𝗈𝗍𝖺𝗅 𝗌𝗅𝗈𝗉𝖾𝗌 𝖲𝗎𝗆𝗆𝖾𝗋 & 𝗇𝗂𝗀𝗁𝗍 𝗌𝗄𝗂𝗂𝗇𝗀 𝗈𝗉𝗍𝗂𝗈𝗇𝗌 𝖲𝗇𝗈𝗐 𝗉𝖺𝗋𝗄 𝖺𝗏𝖺𝗂𝗅𝖺𝖻𝗂𝗅𝗂𝗍𝗒 𝖶𝗂𝗍𝗁 𝖺 𝗌𝗂𝗇𝗀𝗅𝖾 𝗌𝗅𝗂𝖽𝖾𝗋 𝗈𝗋 𝖼𝗁𝖾𝖼𝗄𝖻𝗈𝗑, 𝗍𝗁𝖾 𝖾𝗇𝗍𝗂𝗋𝖾 𝗐𝗈𝗋𝗅𝖽 𝗆𝖺𝗉 𝗎𝗉𝖽𝖺𝗍𝖾𝗌 𝗂𝗇𝗌𝗍𝖺𝗇𝗍𝗅𝗒.
-📊 𝗖𝗼𝘂𝗻𝘁𝗿𝘆-𝗟𝗲𝘃𝗲𝗹 𝗘𝘅𝗽𝗹𝗼𝗿𝗲𝗿:
-𝖢𝗁𝗈𝗈𝗌𝖾 𝖺 𝖼𝗈𝗇𝗍𝗂𝗇𝖾𝗇𝗍,𝗍𝗁𝖾𝗇 𝖺 𝖼𝗈𝗎𝗇𝗍𝗋𝗒, 
-𝖺𝗇𝖽 𝖾𝗑𝗉𝗅𝗈𝗋𝖾 𝗍𝗈𝗉 𝗋𝖾𝗌𝗈𝗋𝗍𝗌 𝗋𝖺𝗇𝗄𝖾𝖽 𝖻𝗒: 
-𝖤𝗅𝖾𝗏𝖺𝗍𝗂𝗈𝗇 𝖲𝗅𝗈𝗉𝖾𝗌 
-𝖲𝗇𝗈𝗐 𝖼𝖺𝗇𝗇𝗈𝗇𝗌
-𝖳𝗂𝖼𝗄𝖾𝗍 𝗉𝗋𝗂𝖼𝖾
-𝖳𝗁𝖾 𝗏𝗂𝗌𝗎𝖺𝗅 𝗎𝗉𝖽𝖺𝗍𝖾𝗌 𝗂𝗇 𝗋𝖾𝖺𝗅-𝗍𝗂𝗆𝖾 — 𝗆𝖺𝗄𝗂𝗇𝗀 𝖼𝗈𝗆𝗉𝖺𝗋𝗂𝗌𝗈𝗇𝗌 𝖾𝖺𝗌𝗒 𝖺𝗇𝖽 𝗂𝗇𝗍𝗎𝗂𝗍𝗂𝗏𝖾.
-🏆 𝗥𝗲𝘀𝗼𝗿𝘁 𝗥𝗲𝗽𝗼𝗿𝘁 𝗖𝗮𝗿𝗱 (𝗟𝗶𝘃𝗲 𝗞𝗣𝗜𝘀)
-𝖧𝗈𝗏𝖾𝗋 𝗈𝗏𝖾𝗋 𝖺𝗇𝗒 𝖻𝖺𝗋 𝖺𝗇𝖽 𝗂𝗇𝗌𝗍𝖺𝗇𝗍𝗅𝗒 𝗌𝖾𝖾:
-𝖯𝗋𝗂𝖼𝖾 𝗋𝖺𝗇𝗄 
-𝖲𝗅𝗈𝗉𝖾 𝗋𝖺𝗇𝗄
- 𝖤𝗅𝖾𝗏𝖺𝗍𝗂𝗈𝗇 𝗋𝖺𝗇𝗄
- 𝖲𝗇𝗈𝗐 𝖼𝖺𝗇𝗇𝗈𝗇 𝗋𝖺𝗇𝗄
- 𝖠 𝖼𝗅𝖾𝖺𝗇 𝗉𝖺𝗇𝖾𝗅 𝖽𝗂𝗌𝗉𝗅𝖺𝗒𝗌 𝖾𝖺𝖼𝗁 𝗋𝖾𝗌𝗈𝗋𝗍’𝗌 𝗉𝖾𝗋𝖿𝗈𝗋𝗆𝖺𝗇𝖼𝖾 — 𝗅𝗂𝗄𝖾 𝖺 𝗆𝗂𝗇𝗂 𝖡𝖨 𝗋𝖾𝗉𝗈𝗋𝗍.
-🧰 𝗧𝗲𝗰𝗵 𝗧𝗵𝗮𝘁 𝗣𝗼𝘄𝗲𝗿𝘀 𝗜𝘁
-✔ 𝖯𝗒𝗍𝗁𝗈𝗇  ✔ 𝖣𝖺𝗌𝗁 & 𝖯𝗅𝗈𝗍𝗅𝗒  ✔ 𝖯𝖺𝗇𝖽𝖺𝗌 + 𝖭𝗎𝗆𝖯𝗒  ✔ 𝖡𝗈𝗈𝗍𝗌𝗍𝗋𝖺𝗉 𝖼𝗈𝗆𝗉𝗈𝗇𝖾𝗇𝗍𝗌  ✔ 𝖦𝗂𝗍𝖧𝗎𝖻 → 𝖱𝖾𝗇𝖽𝖾𝗋 (𝖺𝗎𝗍𝗈𝗆𝖺𝗍𝗂𝖼 𝖽𝖾𝗉𝗅𝗈𝗒𝗆𝖾𝗇𝗍) 
-✔ 𝖦𝗎𝗇𝗂𝖼𝗈𝗋𝗇 (𝗉𝗋𝗈𝖽𝗎𝖼𝗍𝗂𝗈𝗇 𝗌𝖾𝗋𝗏𝖾𝗋)
-🚀 𝗪𝗵𝘆 𝗜 𝗕𝘂𝗶𝗹𝘁 𝗧𝗵𝗶𝘀
-𝖨 𝗐𝖺𝗇𝗍𝖾𝖽 𝗍𝗈 𝖾𝗑𝗉𝗅𝗈𝗋𝖾: 
-𝖬𝗎𝗅𝗍𝗂-𝗍𝖺𝖻 𝖽𝖺𝗌𝗁𝖻𝗈𝖺𝗋𝖽𝗌, 𝖨𝗇𝗍𝖾𝗋𝖺𝖼𝗍𝗂𝗏𝖾 𝖼𝖺𝗅𝗅𝖻𝖺𝖼𝗄𝗌 ,𝖱𝖾𝖺𝗅-𝗍𝗂𝗆𝖾 𝖿𝗂𝗅𝗍𝖾𝗋𝗂𝗇𝗀,𝖢𝗅𝗈𝗎𝖽 𝖽𝖾𝗉𝗅𝗈𝗒𝗆𝖾𝗇𝗍 𝗐𝗈𝗋𝗄𝖿𝗅𝗈𝗐𝗌
-𝖳𝗎𝗋𝗇𝗂𝗇𝗀 𝗋𝖺𝗐 𝖽𝖺𝗍𝖺 𝗂𝗇𝗍𝗈 𝖺 𝗉𝗋𝗈𝖿𝖾𝗌𝗌𝗂𝗈𝗇𝖺𝗅 𝗐𝖾𝖻 𝖺𝗉𝗉 𝖠𝗇𝖽 𝗂𝗍 𝗁𝖺𝗌 𝖻𝖾𝖾𝗇 𝖺𝗇 𝗂𝗇𝖼𝗋𝖾𝖽𝗂𝖻𝗅𝖾 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝖾𝗑𝗉𝖾𝗋𝗂𝖾𝗇𝖼𝖾.
+<!-- ================================================== -->
+<!--     GLOBAL SKI RESORT ANALYTICS DASHBOARD         -->
+<!-- ================================================== -->
+
+<h1 align="center" style="color:#FF6A00;">
+🏔️ Global Ski Resort Analytics Dashboard
+</h1>
+
+<p align="center">
+<b style="color:#FF6A00;">
+Interactive Geospatial & Performance Analytics Application
+</b>
+</p>
+
+---
+
+## 🚀 Project Overview
+
+After weeks of development, I’m excited to present one of the most interactive dashboards I’ve built — a **Global Ski Resort Analytics Dashboard**, deployed using **GitHub + Render**.
+
+This project helped me strengthen my expertise in:
+
+- Advanced data analytics  
+- Geospatial visualization  
+- Interactive dashboard architecture  
+- Cloud deployment workflows  
+
+It transforms raw resort data into a professional, fully interactive web application.
+
+---
+
+## 🌍 What’s Inside the Dashboard?
+
+### 🌎 1️⃣ Global Resort Map
+
+A dynamic **geospatial heatmap** visualizing:
+
+- 🎟️ Ticket Prices  
+- ⛷️ Total Slopes  
+- 🌞 Summer Skiing Availability  
+- 🌙 Night Skiing Options  
+- ❄️ Snow Park Availability  
+
+With a single slider or checkbox selection, the entire world map updates instantly.
+
+---
+
+### 📊 2️⃣ Country-Level Explorer
+
+Users can:
+
+- Select a Continent  
+- Drill down into a Country  
+- Analyze top resorts ranked by:
+
+  - Elevation  
+  - Total Slopes  
+  - Snow Cannons  
+  - Ticket Price  
+
+All visuals update in real time, enabling easy and intuitive comparisons.
+
+---
+
+### 🏆 3️⃣ Resort Performance Report Card (Live KPIs)
+
+Hover over any bar chart to instantly view:
+
+- 💰 Price Rank  
+- ⛷️ Slope Rank  
+- 🏔️ Elevation Rank  
+- ❄️ Snow Cannon Rank  
+
+A clean KPI panel displays each resort’s performance — similar to a mini BI report.
+
+---
+
+## 🧰 Tech Stack
+
+<p align="left">
+
+<img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/python/python-original.svg" width="40" height="40"/>
+<img src="https://cdn.simpleicons.org/plotly/FF6A00" width="40" height="40"/>
+<img src="https://cdn.simpleicons.org/pandas/150458" width="40" height="40"/>
+<img src="https://cdn.simpleicons.org/numpy/013243" width="40" height="40"/>
+<img src="https://cdn.simpleicons.org/bootstrap/7952B3" width="40" height="40"/>
+<img src="https://cdn.simpleicons.org/github/FFFFFF" width="40" height="40"/>
+<img src="https://cdn.simpleicons.org/render/46E3B7" width="40" height="40"/>
+
+</p>
+
+- 🐍 Python  
+- 📊 Dash & Plotly  
+- 🧮 Pandas + NumPy  
+- 🎨 Bootstrap Components  
+- 🔄 GitHub → Render (Automatic Deployment)  
+- 🚀 Gunicorn (Production Server)
+
+---
+
+## 🎯 Why I Built This
+
+I wanted to explore:
+
+- Multi-tab dashboard architecture  
+- Advanced interactive callbacks  
+- Real-time filtering logic  
+- Cloud deployment workflows  
+- Turning analytical insights into a production-ready web app  
+
+This project has been an incredible hands-on learning experience and significantly improved my dashboard engineering skills.
+
+---
+
+## 🌐 Live Demo
+
+🔗 [View Live Dashboard](https://resort-dashboard.onrender.com/)
+
+---
+
+## 📸 Dashboard Preview
+
+<p align="center">
+  <img src="dashboard_preview.png" width="100%">
+</p>
+
+---
+
+<p align="center">
+<b style="color:#FF6A00;">
+Turning Data into Immersive Interactive Experiences 🚀
+</b>
+</p>
